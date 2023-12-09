@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @circlek309
-- 👀 I’m interested in Tiktok Video, Soccer, Game Online and mobile phone
+- 👀 I’m interested in Tiktok Videos, Soccer, Game Online and Mobile phone
 - 🌱 I’m currently learning IELTS
 - 💞️ I’m looking to collaborate on Tiktok
 - 📫 How to reach me in FB, Gmail
