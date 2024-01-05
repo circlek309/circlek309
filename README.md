@@ -2,7 +2,7 @@
 - 👀 I’m interested in Tiktok Videos, Soccer, Game Online and Mobile phone
 - 🌱 I’m currently learning IELTS
 - 💞️ I’m looking to collaborate on Tiktok
-- 📫 How to reach me in FB, Gmail
+- 📫 How to reach me in FB, Gmail/
 
 <!---
 circlek309/circlek309 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
